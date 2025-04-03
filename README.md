@@ -1,5 +1,5 @@
 #      ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10     - ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐
- ˏˋ°•*⁀➷             `` is to survive. ``
+[ ](https://github.com/antonkomarev/github-profile-views-counter.git)ˏˋ°•*⁀➷             `` is to survive. ``
 
 ![Image](https://github.com/user-attachments/assets/e4704d4b-453b-4b04-879b-e2cb9580297d)
 ┗━━━  ⸝⸝                      
