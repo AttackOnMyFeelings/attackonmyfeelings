@@ -1,4 +1,4 @@
-#    -  `` Show me that i mean nothing to you `` .  |   ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10     ⌗
+#    -  `` Show me that i mean nothing to you `` .  |   ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10     
  
 ![Image](https://github.com/user-attachments/assets/c25719d4-b6aa-46c8-ba39-86ae221a1b56)
 *( normiree_art ) on X*
